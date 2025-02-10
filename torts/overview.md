@@ -1,7 +1,7 @@
 # res ipsa loquitur
 
 
-This is for informational purposes only. For medical advice or diagnosis, consult a professional.
+This is for informational purposes only. 
 
 Res ipsa loquitur is a Latin phrase that translates to "the thing speaks for itself." It's a legal doctrine that allows a court to infer negligence based on the circumstances of an accident or injury, even without direct evidence of how the defendant acted. 
 
