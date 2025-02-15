@@ -51,6 +51,7 @@ In addition to the burden of proof, there are several other important legal prin
 
 8. **Legal Sufficiency**: This principle ensures that the evidence presented in a case meets the necessary legal standards to support the claims or defenses. If the evidence is legally insufficient, the court may grant a motion for a directed verdict or summary judgment.
 
+
 These principles are fundamental to ensuring a fair and just legal system. They help establish the rules and standards by which evidence is presented and evaluated in both criminal and civil cases. If you have any specific questions about these principles or want to delve deeper into any of them, feel free to ask!
 
 
