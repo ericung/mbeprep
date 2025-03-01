@@ -2,7 +2,7 @@
 
 ## One - Garand
 
-** Hope this stays like Mash – The next generation **
+ _Hope this stays like Mash – The next generation_
 
 Wednesday afternoon at the edge of spring and I am drinking a cup of coffee in the office listening to SFC Guillette babbling with Corporal Pearson like always. Obviously, we know who wants the promotion. Then enters the beef cake known to the outside world as Sergeant Santiago known to lift the hearts and minds of the public with his impressive physique and his bright, uplifting smile. It’s the complete opposite in the office as he hides in the corner of the tiny little building like an elephant. There’s obviously Private Wilhelm studying for his test on the fundamentals of law like a cultist but no one actually knows why he works so damn hard. He says one thing and does the other. Every other person in his rank and above is intrigued and scared of him. Private Bailey tricks a hat in front of the other privates, obviously she’s going to rise above the ranks with flying colors through the eyes of experience I’ve acquired along the way. 
 “Hey Shotley, let’s get some grub”, said Second Lieutenant Lu.
