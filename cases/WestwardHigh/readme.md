@@ -1,6 +1,6 @@
 ### Westward High School
 
-[Youtube](https://www.youtube.com/watch?v=qHl9VnnsyPw)
+[Youtube](https://www.youtube.com/watch?v=irVEUpxpgKg)
 
 It’s the modern era and by modern, I mean it’s 2025 and I’m sitting in the classroom looking at the window bored of listening to Mrs. Rodriguez’s stupid lecture on the history of modern philosophy on why critically thinking about the geo-political mumbo-jumbo can save the planet from collapsing from itself due to conflicting human interests on the lack of physical resources. I kind of doze halfway through her daily rambling like usual as some of the other kids take notes and the others do whatever they do to look busy. I’m at the back of the class like the star of the show watching some of the kids in the background chatting a little bit but most of them look like they’re jotting down notes quietly or they’re probably texting each other like usual. The minute I pressed on my smartphone, Andrew, Ben, and Samantha burst out laughing. 
 
