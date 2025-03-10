@@ -8,7 +8,7 @@ It’s the modern era and by modern, I mean it’s 2025 and I’m sitting in the
 
 The entire class is bursting in laughter with someone somewhere in the middle of room saying, “Yeah right Mark! We all know you wrote it!”
 
-The end result of all this is me taking my Chromebook, the cheapest but most effective laptop in the world, to the front of the room next to Mrs. Rodriguez’s desk in a walk of shame but the biggest selling point is that I’m used to it now so I do it with my head held up high, proud of myself this time. I grab my backpack and my way there and as I do, I conveniently trip over Lacey’s belongings as intended of the professional clown I am. 
+The end result of all this is me taking my Chromebook, the cheapest but most effective laptop in the world, to the front of the room next to Mrs. Rodriguez’s desk in a walk of shame but the biggest selling point is that I’m used to it now so I do it with my head held up high, proud of myself this time. I grab my backpack and make my way there and as I do, I conveniently trip over Lacey’s belongings as intended of the professional clown I am. 
 
 “Hey Mark!”, as she is left off guard not knowing how to react but obviously should know by now. 
 
