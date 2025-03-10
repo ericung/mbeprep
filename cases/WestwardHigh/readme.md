@@ -12,8 +12,8 @@ The end result of all this is me taking my Chromebook, the cheapest but most eff
 
 “Hey Mark!”, as she is left off guard not knowing how to react but obviously should know by now. 
 
-I walk to front regardless of the situation and plop down on the seat. I’m really good at computers so there’s a wave of laughter every 30 seconds because I found a neat little trick to fill everyone’s Chromebook with easy, self-answering questions to today’s quiz. 
+I walk to the front regardless of the situation and plop down on the seat. I’m really good at computers so there’s a wave of laughter every 30 seconds because I found a neat little trick to fill everyone’s Chromebook with easy, self-answering questions to today’s quiz. 
 
-“Wow! Today’s test was really easy Mrs. Rodriguez!”, exclaimed Peterson with little to no attention to the rest of the class or hiding it really well.
+“Wow! Today’s test was really easy Mrs. Rodriguez!”, exclaimed Peter with little to no attention to the rest of the class or hiding it really well.
 
 Mrs. Rodriguez looks at me angrily, almost like she’s about ready to kill me at any second but before she does, I blurted out, “There’s no proof!” and she points me to the principal’s office. What should have been a four-hour long test, turned out to be a half hour of hilarity because someone, definitely not me by any chance, cut it down and ruined the national scores. I don’t think I was paying attention to class today as usual as the principal is fuming at me right now saying something but who knows, I’m just thinking about how I should spend time after detention today.
