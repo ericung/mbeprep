@@ -8,7 +8,7 @@ Hailey – Female. Best friend of Jordan or nickname Jords.
 
 Anderson – Female. Friends with the characters above
 
-Rafael – Male. Poor, old man who rides his bike to the dojo hidden in town. A little bit of a swindler but mostly good. Always looking for a way to learn.
+Rafael – Male. Poor, old man who rides his bike to the dojo hidden in town. A little bit of a swindler but mostly good. Always looking for a way to learn. Hides more than he appears and seems to be a very good friend of Bruce almost like they have history.
 
 Maven – Male. Cool guy at the powerlifting gym who despite always getting a split second to make things work surprises everyone
 
@@ -48,4 +48,6 @@ Should these characters be in high school or something? I don’t know.
 
 I wish these people were the same age but practice and time makes the best actors. We’ll need to see how these people have professions into this.
 
-[Draft 01](https://www.youtube.com/watch?v=-t1tuR0fi1o)
+[Draft 001](https://www.youtube.com/watch?v=-t1tuR0fi1o)
+
+[Draft 002](https://www.youtube.com/watch?v=PXekgmvNBDE)
