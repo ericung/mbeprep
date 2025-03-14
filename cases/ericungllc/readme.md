@@ -372,4 +372,10 @@ Let me know if you'd like additional activities or examples for any of the subta
 ("To chaos, with style.")
 
 
+The most compact version would be: **"Chaos cum stilum."**  
+("Chaos with style.") This keeps it bold and minimal while retaining the essence!
+
+
+
+
 
