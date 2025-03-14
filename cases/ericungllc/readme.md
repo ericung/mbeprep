@@ -368,3 +368,8 @@ Participants in **CBEI-LBIP-07** will develop a well-rounded foundation in essen
 Let me know if you'd like additional activities or examples for any of the subtasks!
 
 
+"Ad chaos, cum stilum."  
+("To chaos, with style.")
+
+
+
