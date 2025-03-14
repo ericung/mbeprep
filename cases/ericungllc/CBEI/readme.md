@@ -164,3 +164,10 @@ This subproject is tailored to serve both new entrants in the business world and
 ---
 
 This structured program ensures participants develop a comprehensive foundation in business skills. Let me know if you'd like more details or additional refinements!
+
+
+
+
+
+
+
