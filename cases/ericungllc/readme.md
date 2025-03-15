@@ -33,7 +33,7 @@ This document outlines the roles and their progression from entry-level to late-
 
 ---
 
-## OSF-19 - [Operational Security and Financial Strategist](https://www.github.com/ericung/mbeprep/tree/main/cases/ericungllc/IOSF-19.md)
+## OSF-19 - [Operational Security and Financial Strategist](https://www.github.com/ericung/mbeprep/tree/main/cases/ericungllc/OSF-19.md)
 **Core Function**: Integrates operations, security, and financial systems into cohesive strategies, focusing on resource-driven decision-making and ethical enforcement.
 
 ### Progression:
@@ -51,7 +51,7 @@ This document outlines the roles and their progression from entry-level to late-
 
 ---
 
-## MOS-20 - [Mission Oversight Strategist](https://www.github.com/ericung/mbeprep/tree/main/cases/ericungllc/IMOS-20.md)
+## MOS-20 - [Mission Oversight Strategist](https://www.github.com/ericung/mbeprep/tree/main/cases/ericungllc/MOS-20.md)
 **Core Function**: Provides leadership and coordination across multiple units (such as 18QL and OSF-19) to align efforts, ensure mission completion, and balance autonomy with accountability.
 
 ### Progression:
