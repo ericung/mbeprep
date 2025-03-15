@@ -15,7 +15,7 @@ Here’s a summary of the available roles **18QL, OSF-19, MOS-20, and IOC-21**, 
 
 This document outlines the roles and their progression from entry-level to late-career stages, with civilian equivalents provided. Click on each role name to learn more about it.
 
-## 18QL - [Quality of Life Enhancement Specialist](https://www.github.com/ericung/18QL.md)
+## 18QL - [Quality of Life Enhancement Specialist](https://github.com/ericung/mbeprep/tree/main/cases/ericungllc/18QL.md)
 **Core Function**: Improves operational systems and processes that enhance quality of life within organizations or communities, focusing on adaptability and hands-on problem-solving.
 
 ### Progression:
@@ -33,7 +33,7 @@ This document outlines the roles and their progression from entry-level to late-
 
 ---
 
-## OSF-19 - [Operational Security and Financial Strategist](https://www.github.com/ericung/OSF-19.md)
+## OSF-19 - [Operational Security and Financial Strategist](https://www.github.com/ericung/mbeprep/tree/main/cases/ericungllc/IOSF-19.md)
 **Core Function**: Integrates operations, security, and financial systems into cohesive strategies, focusing on resource-driven decision-making and ethical enforcement.
 
 ### Progression:
@@ -51,7 +51,7 @@ This document outlines the roles and their progression from entry-level to late-
 
 ---
 
-## MOS-20 - [Mission Oversight Strategist](https://www.github.com/ericung/MOS-20.md)
+## MOS-20 - [Mission Oversight Strategist](https://www.github.com/ericung/mbeprep/tree/main/cases/ericungllc/IMOS-20.md)
 **Core Function**: Provides leadership and coordination across multiple units (such as 18QL and OSF-19) to align efforts, ensure mission completion, and balance autonomy with accountability.
 
 ### Progression:
@@ -69,7 +69,7 @@ This document outlines the roles and their progression from entry-level to late-
 
 ---
 
-## IOC-21 - [Integrated Operations Commander](https://www.github.com/ericung/IOC-21.md)
+## IOC-21 - [Integrated Operations Commander](https://www.github.com/ericung/mbeprep/tree/main/cases/ericungllc/IOC-21.md)
 **Core Function**: High-level leadership role overseeing MOS-20 units and direct management of 18QL and OSF-19 groups outside of MOS-20 purview. Focuses on ensuring mission completion with no objectives abandoned.
 
 ### Progression:
