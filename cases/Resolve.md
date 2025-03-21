@@ -1,6 +1,8 @@
----
 
-**![Resolve](https://copilot.microsoft.com/shares/WJz7k1TbDYSfQMZHWfjWt)**
+
+**Resolve**
+
+[Story Interaction](https://copilot.microsoft.com/shares/WJz7k1TbDYSfQMZHWfjWt)
 
 The C-130 transport plane roared against the ink-black sky, vibrating through Lieutenant Alex Carter’s core. His hands moved quickly, checking and rechecking his gear like clockwork, yet the straps felt foreign, loose—or maybe too tight. He forced himself to stop second-guessing, muttering under his breath, “Here we go,” though the words carried less confidence than he'd hoped.
 
