@@ -2,7 +2,7 @@ On a Middle Eastern desert where the camels roamed the land, a cowboy stood out 
 
 Nearby, an off-road dirt bike sat in the sand, its engine still cooling, the faint hum of recent use lingering in the dry air. A trail of tracks marked Alex's journey, etched into the endless dunes, deliberate and unwavering. In the far distance, a Humvee cast an imposing figure against the shimmering horizon, its modern frame a stark contrast to the timeless desert landscape. But the Humvee wasn’t just a vehicle—it was the man Alex had just shot.
 
-One. Two. Three. Turn around. BANG! “You’re taking a one-way trip to Jerusalem.” BANG! A body fell to the floor. It wasn’t Alex.
+One. Two. Three. Turn around. BANG! “You’re taking a one-way to Jerusalem.” BANG! A body fell to the floor. It wasn’t Alex.
 
 Alex stood motionless, the wind stirring the sand in lazy swirls around his boots. His eyes locked on the Humvee, its sleek metal carcass a jarring reminder of the clash between past and present. The desert, ancient and unchanging, had witnessed millennia of humanity's struggles, empires rising and crumbling like the dunes themselves. Now, in this moment, history seemed to echo: a cowboy in a poncho, a duel fought under the unrelenting sun, and a modern machine lying silent in the sands—a snapshot of worlds colliding.
 
